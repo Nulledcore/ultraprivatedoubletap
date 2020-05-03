@@ -4,4 +4,4 @@
 
 ultraprivatedoubletap_with_memes.lua preview
 
-![what it looks like](https://traps.best/owo/lzrvg.png)
+![what it looks like](https://traps.best/owo/7ftdc.png)
